@@ -10,8 +10,11 @@
 </p>
 
 TᖇᗩᗷᗩᒪᕼᗩᗰOS ᘉᗩS ᑕOᒪÔᘉIᗩS ᗞᕮ ᗰᗩᖇTᕮ
+
 ᘉOS IᘉᒍᕮTᗩᗰOS ᖴᖇᕮᗩKIᑌᗰ ᕮᗰ SᗩTᑌᖇᘉO 
+
 OᗷᐯIᗩᗰᕮᘉTᕮ ᘉOS ᗩᗰᗩᗰOS ᕮᗰ ᐯᕮ̂ᘉᑌS
+
 Oᘉᗞᕮ ᑕOSTᑌᗰᗩᗰOS ᑕᑌᖇTIᖇ ᗰᑌ́SIᑕᗩ ᘉO ᗰᑕ ᑕᗩᑕTᑌS ᘉIＧᕼTᑕᒪᑌᗷ
 
 <p align="center">
